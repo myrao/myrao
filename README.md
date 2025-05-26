@@ -2,4 +2,4 @@
 - ⛺️ Camping
 - 🥘 Cooking
 - 🍡 BBQ
-- 🐕‍🦺 Dog
+- 🐕‍🦺 Dogs
